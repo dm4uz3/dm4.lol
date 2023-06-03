@@ -30,3 +30,6 @@ I'm proud of the pictures out of this portra 160 roll. they got the vibes.
 
 though film is soooooo expensive. it comes out to over 1 Euro per photo. guh i cannot afford this >~<
 
+![000030.JPG](/img/fa1/000030.JPG)
+
+bonus: kitty :3 
