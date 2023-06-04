@@ -15,7 +15,7 @@ description: another batch of analogue pics
 
 actually the first roll i shot on this little camera, it's ilford whatever the fuck. the green one 400 ISO
 
-![CNV000008.JPG](/img/fa2/CNV000008.JPG)
+![CNV000008.JPG](/img/fa2/CNV000008-.JPG)
 
 black and white. the colors are up to your imagination
 
