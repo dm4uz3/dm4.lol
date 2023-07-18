@@ -20,7 +20,7 @@ when bumping out of the tube station with jade i got shouted at. i turned my hea
 
 the library inside. they had cds for a few pound. i thought I'd get a shit gift for my brother. I think he hates when I do that, he said he didn't want the 2007 hits CD
 
-![20230306-DMC-G81-P1510062](/img/barb/20230306-DMC-G81-P1510062.jpg) ![20230306-DMC-G81-P1510051](/img/20230306-DMC-G81-P1510051.jpg)
+![20230306-DMC-G81-P1510062](/img/barb/20230306-DMC-G81-P1510062.jpg) ![20230306-DMC-G81-P1510051](/img/barb/20230306-DMC-G81-P1510051why.jpg)
 
 there was such a cute little garden but it was fenced off for some university graduation thingy.
 
