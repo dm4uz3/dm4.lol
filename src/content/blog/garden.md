@@ -34,3 +34,5 @@ mmmm yummy
 thing.
 
 ![20230724-DMC-G81-P1510358](/img/green/20230724-DMC-G81-P1510358.jpg)
+
+get free wifi anywhere you go
