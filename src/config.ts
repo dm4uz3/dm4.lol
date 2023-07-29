@@ -1,10 +1,10 @@
 import type { Site, SocialObjects } from "./types";
 
 export const SITE: Site = {
-  website: "https://1585053.xyz/",
+  website: "https://dm4.lol",
   author: "me",
   desc: "blog site",
-  title: "1585053.xyz",
+  title: "dm4.lol",
   ogImage: "",
   lightAndDarkMode: false,
   postPerPage: 4,
