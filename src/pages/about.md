@@ -27,6 +27,5 @@ donate link is out. monero is 863Svkc9CKQYTfY32gQSxjiisNFE2N2LeGoZmNjVho17PAMWoh
 ![](/chinesebanners/14.gif)
 ![](/chinesebanners/15.gif)
 ![](/chinesebanners/16.gif)
-![](/chinesebanners/17.gif)
 
 ![me](/img/20230429-DMC-G81-P1510100.jpg)
