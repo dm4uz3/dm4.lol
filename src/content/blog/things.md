@@ -14,7 +14,7 @@ description: 'for the record'
 
 oh how wonderful, sending all of twitter into chaos. not even the [internal teams](https://cohost.org/atax1a/post/322642-manually-cross-poste) knew what was up
 
-There's a gizmodo article: [here](https://gizmodo.com/heres-how-the-mysterious-twitter-carp-meme-came-to-be-1845920237) and a KYM (ew gross) page here [https://knowyourmeme.com/memes/carp-tweets](https://knowyourmeme.com/memes/carp-tweets)
+There's a gizmodo article: [here](https://gizmodo.com/heres-how-the-mysterious-twitter-carp-meme-came-to-be-1845920237) and a KYM (ew gross) page  [here](https://knowyourmeme.com/memes/carp-tweets)
 
 ---
 
@@ -44,5 +44,7 @@ thats it. check https://www.flickr.com/photos/dm4uz3/ and https://www.flickr.com
 ## i have successfully made youtube videos for a niche that were also interesting for the masses
 
 The full body tracking video I made in late 2021 was cool: https://www.youtube.com/watch?v=EAUMBG_4Tf8. I am kinda proud of it even though there's a lot i would do differently if I were do do it now. I also made a sequel, though nowhere near as popular https://www.youtube.com/watch?v=Avy43toWT4U.
+
+---
 
 ## i cant remember anything else, I'll be updating this though
