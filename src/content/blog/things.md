@@ -43,7 +43,7 @@ thats it. check https://www.flickr.com/photos/dm4uz3/ and https://www.flickr.com
 
 ## i have successfully made youtube videos for a niche that were also interesting for the masses
 
-The full body tracking video I made in late 2021 was cool: https://www.youtube.com/watch?v=EAUMBG_4Tf8. I am kinda proud of it even though there's a lot i would do differently if I were do do it now. I also made a sequel, though nowhere near as popular https://www.youtube.com/watch?v=Avy43toWT4U.
+The full body tracking video I made in late 2021 was cool: https://www.youtube.com/watch?v=EAUMBG_4Tf8. I am kinda proud of it even though there's a lot i would do differently if I were do do it now. I also made a sequel, though nowhere near as popular. I quite like it, I thik it's a very well made video :) https://www.youtube.com/watch?v=Avy43toWT4U
 
 ---
 
