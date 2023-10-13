@@ -48,3 +48,6 @@ The full body tracking video I made in late 2021 was cool: https://www.youtube.c
 ---
 
 ## i cant remember anything else, I'll be updating this though
+
+You can keep up with me on [twitter](https://twitter.com/dm4uz3) until it dies (soon, it seems).
+Alts on [bluesky](https://bsky.app/profile/maws.bsky.social), [masto](https://c.im/@dm4), [tumblr](https://www.tumblr.com/twinksoyjak), email anything @ this domain.
